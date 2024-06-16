@@ -1,1 +1,1 @@
-Salam Sabine sen Hamida deyilsen  axi
+Salam Sabine sen Hamida deyilsen axi
